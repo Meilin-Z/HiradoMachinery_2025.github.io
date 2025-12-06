@@ -1,0 +1,1 @@
+# HiradoMachinery_2025.github.io
